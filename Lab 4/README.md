@@ -1,0 +1,4 @@
+## Lab 4 Team Contributions
+Everyone - discussion about items / checking work
+
+Samuel Harris - Question 8
